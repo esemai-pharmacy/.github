@@ -2,9 +2,8 @@
 
 
 
-💊 This
-is a pharmacy project 
-💉 ESEMAI created By ErdemSaitEnesMertAvukaI :)
+💊 This is a pharmacy project 
+💉 ESEMAI is coming soon :)
 
 Hayırlı kazançlar
 
