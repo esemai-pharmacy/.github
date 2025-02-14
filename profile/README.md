@@ -2,7 +2,8 @@
 
 
 
-💊 That is a pharmacy project 
+💊 This
+is a pharmacy project 
 💉 ESEMAI created By ErdemSaitEnesMertAvukaI :)
 
 Hayırlı kazançlar
